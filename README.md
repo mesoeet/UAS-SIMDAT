@@ -4,7 +4,7 @@
 
 2. Azzahra
 
-3. Satia
+3. Setia
 
 coba test yaaaa
 
